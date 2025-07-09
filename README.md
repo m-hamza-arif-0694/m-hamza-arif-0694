@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Muhammad Hamza Arif
 - 👀 I’m interested in becoming a Computer Scientist, Programmer, Software Engineer, Web Developer, Graphic Designer, and a successful freelancer.
-- 🌱 I’m currently learning Graphic Designing on Coursera
+- 🌱 Adobe Certified Graphic Designer
 - 💞️ I’m looking to collaborate on Graphic Designing and Web Development
 - 📫 How to reach me: My LinkedIn profile ---> www.linkedin.com/in/muhammad-hamza-arif-a4260850k
 - 😄 Pronouns: He/Him
